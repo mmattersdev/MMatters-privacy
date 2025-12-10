@@ -1,6 +1,6 @@
 # Privacy Policy for Money Matters
 
-**Effective date:** _(6 December 2025)_
+**Effective date:** _(11 December 2025)_
 
 ## Introduction
 This app (“Money Matters”) is provided by Mmatters Dev (“we”, “us”). Contact: [mmatters.dev@gmail.com](mailto:mmatters.dev@gmail.com).
