@@ -1,4 +1,4 @@
-# Privacy Policy for Money Matters
+# Support & Privacy Policy for Money Matters
 
 **Effective date:** _(11 December 2025)_
 
